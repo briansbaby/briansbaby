@@ -1,5 +1,5 @@
 ## 
-<img align="left" src="https://i.imgur.com/0EYvFTK.png" alt="brian" width="400" height="auto">
+<img align="left" src="https://i.imgur.com/0EYvFTK.png" alt="brian" width="350" height="auto">
 
 <p align="left">$\color{#76ba3d}{\text{♡⠀⠀⠀⠀⠀my name's max !}}$</p>
 <p align="left">
